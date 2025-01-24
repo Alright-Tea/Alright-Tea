@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Alright-Tea
 - 👀 I’m interested in art!!!
 - 🌱 I’m currently learning how to code!
-- 📫 How to reach me email me at alrighttea23@gmail.com for buisness/commission info.
+- 📫 How to reach me email me at alrighttea23@gmail.com for buisness/art commission info.
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: My favorite animals are cats! My family has six.
 
